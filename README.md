@@ -1,1 +1,1 @@
-update from yallamanda
+update from yalla
